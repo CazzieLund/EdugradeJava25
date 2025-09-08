@@ -12,4 +12,4 @@
 - Bygga en stabil grund för framtida arbeten inom utveckling.
 
 ## Utanför studierna
-När jag inte pluggar tycker jag om att åka på roadtrips, hänga i naturen eller att spela spel.
+När jag inte pluggar tycker jag om att åka på roadtrips, hänga i naturen, virka eller att spela spel.
