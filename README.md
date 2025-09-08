@@ -1,6 +1,5 @@
 # Cazandra Lund
-**Ålder:** 26 år
-
+**Ålder:** 26 år  
 **Stad:** Skövde
 
 ## Bakgrund
